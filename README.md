@@ -34,6 +34,6 @@ We may update this Privacy Policy from time to time. We will post any changes on
 ## Contact Us
 If you have any questions about this Privacy Policy, please contact us at:
 #### Email: hello@prolife.com
-#### Phone: [Insert Phone Number]
-#### Address: [Insert Address]
+#### Phone: 0806 554 9560
+#### Address: F2G4+FPV, New Owerri, New Owerri I 460281, Imo
 **By using our services, you acknowledge that you have read, understood, and agree to be bound by this privacy policy.**
